@@ -6,7 +6,7 @@
 
 💞️ Estou procurando colaborar em projetos que envolvam desenvolvimento de software e análise de dados aplicados à engenharia.
 
-📫 Como me encontrar: [inserir seu e-mail ou perfil no LinkedIn aqui]
+📫 Como me encontrar: [www.linkedin.com/in/giovanni-hedrios-ab3b891a1  ou  dev.hedrios@gmail.com]
 
 😄 Pronomes: Ele/Dele
 
