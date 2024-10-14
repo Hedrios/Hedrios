@@ -8,6 +8,4 @@
 
 📫 Como me encontrar: [www.linkedin.com/in/giovanni-hedrios-ab3b891a1  ou  dev.hedrios@gmail.com]
 
-😄 Pronomes: Ele/Dele
-
 ⚡ Curiosidade: Sou um engenheiro civil que está sempre em busca de novas maneiras de aplicar tecnologia e dados para resolver problemas do mundo real.
