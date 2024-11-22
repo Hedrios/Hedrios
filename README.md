@@ -6,6 +6,6 @@
 
 💞️ Estou procurando colaborar em projetos que envolvam desenvolvimento de software e análise de dados aplicados à engenharia.
 
-📫 Como me encontrar: [www.linkedin.com/in/giovanni-hedrios-ab3b891a1, dev.hedrios@gmail.com  ou whatsapp: (87) 99920-5886]
+📫 Como me encontrar: [www.linkedin.com/in/giovanni-hedrios, dev.hedrios@gmail.com  ou whatsapp: (87) 99920-5886]
 
 ⚡ Curiosidade: Sou um engenheiro civil que está sempre em busca de novas maneiras de aplicar tecnologia e dados para resolver problemas do mundo real.
